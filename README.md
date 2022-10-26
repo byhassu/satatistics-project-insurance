@@ -1,1 +1,0 @@
-# satatistics-project-insurance
